@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 Barack Obama
 - 💬 Ask me about anything i will say "idk"
 - 📫 u can't reach me bro
-- 😄 null
+- 😄 peace
 - ⚡ Sarcasam is not in blood it develops.
 -->
